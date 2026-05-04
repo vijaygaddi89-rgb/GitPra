@@ -1,0 +1,1 @@
+I am very much curious about ai related stuff
